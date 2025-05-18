@@ -1,1 +1,1 @@
-# About the company
+# About
